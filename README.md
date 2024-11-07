@@ -3,7 +3,7 @@ viciado nas de cacho e em fazer joguinhos
 
 Ola, bem vindo ao meu perfil meu anjo🫶
 
-Meu nome é Enzo e Sobre nome Rocha 💙
+Meu nome é Enzo e Sobrenome Rocha 💙
 
 ✒️Estou estudando no Alura junto da minha turma retarda
 Tambem estou me desenvolvendo na linguagem JavaScript
